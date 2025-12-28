@@ -1,8 +1,8 @@
 i havent been on ponytown in 4ever...havent used github in 4ever. this wont be fancy until i figure this out again
 
-@  jester / narcissus / acrobat / court / deaths / fool   <- names you can call me   𓈊    avoid pronouns,  he / it if you have to
+@  jester . death . narcissus   𓈊    avoid pronouns,  he / it if you have to
 
-taken 3x (matt, saint, soul)    𓈊    15 years old    𓈊    bday is june 22
+taken 2x  ( matt , ditzy )    𓈊    15 years old    𓈊    bday is june 22
 
 some things we enjoy right now    𝅄𝅄   no, im not a human.  QSMP.  identity v.  dandys world.  phighting.  jesters.  birds.  flowers
 
@@ -17,7 +17,7 @@ i am not dry when u get to know me i promise this is just for the sake of my git
 typically offtab, i might not immediately respond (if at all), im not trying to ignore you
 ***
 ### I WILL NOT INTERACT (IWNI)
-t.r.a.s.h (transphobes, racists, ableists, sexists, homophobes)    𝅄𝅄    pro/neu endo    𝅄𝅄    petty drama and those who are constantly and willingly involved with petty drama    𝅄𝅄    darkshippers && loli/shota enjoyers    𝅄𝅄    people involved with sh/ed content    𝅄𝅄    under 13    𝅄𝅄    if you are in contact with someone who has hurt me, are someone who has hurt me, or are someone who has hurt someone close to me, i will not interact for me and my loved ones personal comfort    𝅄𝅄    tcoaal fans (i promised myself i wouldn't add fandoms...failed)    𝅄𝅄    pro/neu israel    𝅄𝅄    i really dont need a reason to block you or not want to interact with you, i block/avoid freely
+t.r.a.s.h (transphobes, racists, ableists, sexists, homophobes)    𝅄𝅄    pro/neu endo    𝅄𝅄    petty drama and those who are constantly and willingly involved with petty drama    𝅄𝅄    darkshippers && loli/shota enjoyers    𝅄𝅄    people involved with sh/ed content    𝅄𝅄    under 13    𝅄𝅄    if you are in contact with someone who has hurt me, or are someone who has hurt me    𝅄𝅄    tcoaal fans    𝅄𝅄    pro/neu israel    𝅄𝅄    i really dont need a reason to block you or not want to interact with you, i block/avoid freely
 
 i say specifically "i will not interact" because i feel like its impossible to make sure every person ever in your dni avoids interacting with you, and i know people will likely not see it - so its more of a warning that "if i find out you apply to any of these, i will avoid interacting with you from then on or i might block you"
 

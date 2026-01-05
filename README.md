@@ -14,8 +14,6 @@ ${\textsf{\color{#50B8C7}"　 smile  wide,  scrub  side,  feet  on  
 <img align="right" width="500" height="480" src="https://i.postimg.cc/Njstb8mQ/Untitled68-Restored5-20260105082031.png"/>
 </p>
 
-
-
 </h5>
 <h5 align="center">
 ${\textsf{\color{#84E341}— ꒰　 fox ₊   burial ₊   narcissus　 𖥔　 it ₊   he ok}}$

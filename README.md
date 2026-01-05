@@ -1,30 +1,81 @@
+
+
+
+<p align="center">
 <img src="https://komarev.com/ghpvc/?username=foxburies&label= +hi+guys+⌒☆+ &color=84E341"/>
+    </h3>
+
+<p align="center">
+${\textsf{\color{#50B8C7}"　 smile  wide,  scrub  side,  feet  on  the  dash . . .　 "}}$
+
+</h5>
+<p align="center">
+<img  width="1000" height="500" src="https://i.postimg.cc/x8GX4cVy/Untitled103-20260105124630.png"/>
+</p>
+   
+<p align="center">
+<img align="right" width="500" height="500" src="https://i.postimg.cc/Njstb8mQ/Untitled68-Restored5-20260105082031.png"/>
+</p>
 
 
-fox ノ burial ノ narcissus )  it₊ he ok
 
-15  𓄧  did sys  𓄧  taken 3x₊ i <3 my partners
+</h5>
+<h5 align="center">
+${\textsf{\color{#84E341}— ꒰　 fox ₊   burial ₊   narcissus　 𖥔　 it ₊   he ok}}$
+${\textsf{\color{#84E341}15yo　 ⸝⸝　 did ₊   system　 ⸝⸝　 taken 3x !　 ꒱}}$
+</p>
 
-***
+</h5>
+<p align="center">
+${\textsf{\color{#50B8C7}"　 i' ll  sleep  the  whole  damn  day !　 "}}$
+</p>
 
-︶  interests )  CAPS = major interest )  *italics* = minor interest
+</h5>
+<h5 align="center">
+${\textsf{\color{#84E341}i don't care if you take inspo, just don't completely copy !}}$
+${\textsf{\color{#84E341}being a system, we may not remember much, or act different / weird}}$
+${\textsf{\color{#84E341}we overall struggle with mental health, and may be mostly silent for days on end}}$
+</p>
 
-STARTERS (MOVIEUNLEASHERS),  FLOWERS  .  animation vs animator / minecraft,  dandys world,  team fortress 2,  searching for a world that doesn't exist,  collinlock16,  no i'm not a human,  house md,  forsaken,  minesweeper,  bad things,  mouthwashing,  phighting!,  qsmp,  regretevator,  trauma center: under the knife 2  .  *identity v*,  *yttd*,  *studio investigrave*
+  
+</h5>
+<p align="center">
+${\textsf{\color{#50B8C7}"　 slow  lane,  propane,  empties  for  cash . . .　 "}}$
+</p>
 
-i do not support (play games, buy from, etc) any problematic people that may have created or contributed to said interests, i just might like the lore or characters / played before stuff came out about them. my list is not in order
+</h5>
+<h5 align="center">
+${\textsf{\color{#84E341}DNI  t.r.a.s.h (transphobes, racists, ableists, sexists, homophobes),}}$
+${\textsf{\color{#84E341}people under 13,  and if you have beef with me / my friends}}$
+${\textsf{\color{#84E341}otherwise i do NOT care, as long as you aren't hurting yourself or others}}$
+</p>
 
-***
+<p align="center">
+${\textsf{\color{#50B8C7}"　 rear- view  mirror  thrown  away .　 "}}$
 
-︶  before you interact / friend
+</h5>
+<h5 align="center">
+${\textsf{\color{#84E341}INTERESTS  as of right now i' m HEAVILY into starters .}}$
+${\textsf{\color{#84E341}other interests include  tf2,  avm/ava,  dandys world,  sfawtde,}}$
+${\textsf{\color{#84E341}collinlock16,  ninah,  house md,  forsaken,  minesweeper,  bad things,}}$
+${\textsf{\color{#84E341}mouthwashing,  phighting,  qsmp,  regretevator,  identity v,  yttd,}}$
+${\textsf{\color{#84E341}trauma center: under the knife 2,  flowers,  and studio investigrave games .}}$
+</p>
 
-i am mentally ill . i may be barely active for days on end, and i may be unstable
+</h5>
+<h5 align="center">
+${\textsf{\color{#84E341}i love a lot of things and i love rambling about the things i love :o)}}$
+</p>
 
-i am REALLY trying 2 make friends, but im really awkward and dont know how to start a convo . please please please hit me up if u want 2 talk. STARTERS FANS PLEASE HIT ME UP.
+  
+</h5>
+<p align="center">
+<img  width="1000" height="500" src="https://i.postimg.cc/x8GX4cVy/Untitled103-20260105124630.png"/>
+</p>
 
-***
+<p align="center">
+${\textsf{\color{#50B8C7}"　 oh,  let  me  tell  you  about  my  operation !　 "}}$
 
-︶  i will not interact  +  do not interact
-
-t.r.a.s.h (transphobes, racists, ableists, sexists, homophobes)  ᆺ  tcoaal fans
-
-dni if u have beef with my babes or me  ᆺ  i don't really care otherwise, as long as you don't hurt others
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=foxburies&label= +bye+guys+⌒☆+ &color=84E341"/>
+    </h3>

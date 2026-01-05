@@ -33,8 +33,8 @@ ${\textsf{\color{#50B8C7}"　 i' ll  sleep  the  whole  damn  day !　
 </h5>
 <h5 align="center">
 ${\textsf{\color{#84E341}i don't care if you take inspo, just don't completely copy !}}$
-${\textsf{\color{#84E341}being a system, we may not remember much, or act different / weird}}$
-${\textsf{\color{#84E341}we overall struggle with mental health, and may be mostly silent for days on end}}$
+${\textsf{\color{#84E341}being a system, we may not remember much, or act different}}$
+${\textsf{\color{#84E341}we struggle with mental health, and may be inactive for days}}$
 </p>
 
   

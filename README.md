@@ -1,78 +1,88 @@
+</h5>
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=foxburies&label= +hi+guys+⌒☆+ &color=84E341"/>
+<img  width="1000" height="500" src="https://i.postimg.cc/LXvL2fyr/download-(8).png"/>
+</p>
+
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=foxburies&label= +⌒☆+ &color=4F3C4F"/>
     </h3>
 
 <p align="center">
-${\textsf{\color{#50B8C7}"　 smile  wide,  scrub  side,  feet  on  the  dash . . .　 "}}$
+${\textsf{\color{#727677}"　 smile  wide,  scrub  side,  feet  on  the  dash . . .　 "}}$
 
 </h5>
 <p align="center">
-<img  width="1000" height="500" src="https://i.postimg.cc/x8GX4cVy/Untitled103-20260105124630.png"/>
+<img  width="500" height="100" src="https://i.postimg.cc/Y98YMgnB/download-(9).png"/>
 </p>
    
 <p align="center">
-<img align="right" width="500" height="480" src="https://i.postimg.cc/Njstb8mQ/Untitled68-Restored5-20260105082031.png"/>
+<img align="right" width="500" height="480" src="https://i.postimg.cc/rmgxMWnk/download-(7).png"/>
 </p>
 
 </h5>
 <h5 align="center">
-${\textsf{\color{#84E341}— ꒰　 fox ₊   burial ₊   narcissus　 𖥔　 it ₊   he ok}}$
-${\textsf{\color{#84E341}15yo　 ⸝⸝　 did ₊   system　 ⸝⸝　 taken 3x !　 ꒱}}$
+${\textsf{\color{#D8B6B2}— ꒰　 fox ₊   burial ₊   narcissus　 𖥔　 it ₊   he ok}}$
+${\textsf{\color{#D8B6B2}15yo　 ⸝⸝　 did ₊   system　 ⸝⸝　 taken 3x !　 ꒱}}$
 </p>
 
 </h5>
 <p align="center">
-${\textsf{\color{#50B8C7}"　 i' ll  sleep  the  whole  damn  day !　 "}}$
+${\textsf{\color{#AD9B9B}"　 i' ll  sleep  the  whole  damn  day !　 "}}$
 </p>
 
 </h5>
 <h5 align="center">
-${\textsf{\color{#84E341}i don't care if you take inspo, just don't completely copy !}}$
-${\textsf{\color{#84E341}being a system, we may not remember much, or act different}}$
-${\textsf{\color{#84E341}we struggle with mental health, and may be inactive for days}}$
+${\textsf{\color{#D8B6B2}i don't care if you take inspo, just don't completely copy !}}$
+${\textsf{\color{#D8B6B2}being a system, we may not remember much, or act different}}$
+${\textsf{\color{#D8B6B2}we struggle with mental health, and may be inactive for days}}$
 </p>
 
   
 </h5>
 <p align="center">
-${\textsf{\color{#50B8C7}"　 slow  lane,  propane,  empties  for  cash . . .　 "}}$
+${\textsf{\color{#AD9B9B}"　 slow  lane,  propane,  empties  for  cash . . .　 "}}$
 </p>
 
 </h5>
 <h5 align="center">
-${\textsf{\color{#84E341}DNI  t.r.a.s.h,  people under 13,  tcooal fans}}$
-${\textsf{\color{#84E341}if you have beef with me  and / or  my friends}}$
-${\textsf{\color{#84E341}++ as long as you aren't hurting others,  that's it}}$
+${\textsf{\color{#D8B6B2}DNI  t.r.a.s.h,  people under 13,  tcooal fans}}$
+${\textsf{\color{#D8B6B2}if you have beef with me  and / or  my friends}}$
+${\textsf{\color{#D8B6B2}++ as long as you aren't hurting others,  that's it}}$
 </p>
 
 <p align="center">
-${\textsf{\color{#50B8C7}"　 rear- view  mirror  thrown  away .　 "}}$
+${\textsf{\color{#AD9B9B}"　 rear- view  mirror  thrown  away .　 "}}$
 
 </h5>
 <h5 align="center">
-${\textsf{\color{#84E341}INTERESTS  as of right now i' m HEAVILY into starters .}}$
-${\textsf{\color{#84E341}other interests include  tf2,  avm/ava,  dandys world,}}$
-${\textsf{\color{#84E341}sfawtde,  collinlock16,  ninah,  house md,  forsaken,}}$
-${\textsf{\color{#84E341}minesweeper,  bad things,  mouthwashing,  phighting,}}$
-${\textsf{\color{#84E341}qsmp,  regretevator,  identity v,  yttd,  flowers}}$
-${\textsf{\color{#84E341}trauma center: under the knife 2,  studio investigrave}}$
+${\textsf{\color{#D8B6B2}INTERESTS  as of right now i' m HEAVILY into starters .}}$
+${\textsf{\color{#D8B6B2}other interests include  tf2,  avm/ava,  dandys world,}}$
+${\textsf{\color{#D8B6B2}sfawtde,  collinlock16,  ninah,  house md,  forsaken,}}$
+${\textsf{\color{#D8B6B2}minesweeper,  bad things,  mouthwashing,  phighting,}}$
+${\textsf{\color{#D8B6B2}qsmp,  regretevator,  identity v,  yttd,  flowers}}$
+${\textsf{\color{#D8B6B2}trauma center: under the knife 2,  studio investigrave}}$
 </p>
 
 </h5>
 <h5 align="center">
-${\textsf{\color{#84E341}i don't support any problematic devs / creators that-}}$
-${\textsf{\color{#84E341}-may have contributed to my interests. i just like lore !}}$
+${\textsf{\color{#D8B6B2}i don't support any problematic devs / creators that-}}$
+${\textsf{\color{#D8B6B2}-may have contributed to my interests .}}$
 </p>
 
   
 </h5>
 <p align="center">
-<img  width="1000" height="500" src="https://i.postimg.cc/x8GX4cVy/Untitled103-20260105124630.png"/>
+<img  width="500" height="100" src="https://i.postimg.cc/Y98YMgnB/download-(9).png"/>
 </p>
 
 <p align="center">
-${\textsf{\color{#50B8C7}"　 oh,  let  me  tell  you  about  my  operation !　 "}}$
+${\textsf{\color{#727677}"　 oh,  let  me  tell  you  about  my  operation !　 "}}$
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=foxburies&label= +bye+guys+⌒☆+ &color=84E341"/>
+<img src="https://komarev.com/ghpvc/?username=foxburies&label= +☆⌒+ &color=4F3C4F"/>
     </h3>
+
+</h5>
+<p align="center">
+<img  width="1000" height="500" src="https://i.postimg.cc/KzmB6QNG/download-(10).png"/>
+</p>

@@ -47,7 +47,8 @@ ${\textsf{\color{#AD9B9B}"　 slow  lane,  propane,  empties  for  cas
 <h5 align="center">
 ${\textsf{\color{#D8B6B2}DNI  t.r.a.s.h,  people under 13,  tcooal fans}}$
 ${\textsf{\color{#D8B6B2}if you have beef with me  and / or  my friends}}$
-${\textsf{\color{#D8B6B2}++ as long as you aren't hurting others,  that's it}}$
+${\textsf{\color{#D8B6B2}++ i genuinely could not care LESS what you do}}$
+${\textsf{\color{#D8B6B2}as long as you aren't harming yourself or others}}$
 </p>
 
 <p align="center">
